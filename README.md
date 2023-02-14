@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @BharatiKumar
 - 👀 I’m interested in :-) probably many things
-- 🌱 I’m currently learning ... :-) probably many things
+- 🌱 I’m currently learning ... :-) few things
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... if you know me, you already know how to reach me
 
